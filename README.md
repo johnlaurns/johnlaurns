@@ -3,7 +3,9 @@
 𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 
 
 HHAI oke... feel free to c + h at any time!!!! uhhh u can mostly find me either in forskane area (under bakery), docks or kpdh area
-ponies i use the most are wendy from red velvet (dumb dumb) shedletsky andd john laurens !! ye !!
+ponies i use the most are john laurens, shedletsky, malbear. or tails !! 
+
+other ponies i use: wendy red velvet (dumb dumb) heejin loona (love & live) waffle oc, or any other dumb wip 
 
 regis im in: ayz, spt, sbr, sdr, and ebay !! claimed john laurens in all of them :///.. and shedletsky in spt ig...
 
