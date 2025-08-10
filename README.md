@@ -7,7 +7,7 @@ ponies i use the most are john laurens, shedletsky, malbear. or tails !!
 
 other ponies i use: wendy red velvet (dumb dumb) heejin loona (love & live) waffle oc, or any other dumb wip 
 
-regis im in: ayz, spt, sbr, sdr, ebay, O🦇B, mod in hse (waitlist) ybp, bug (not that active in last 2) claims: john laurens in almost all of them, shedletsky in spt, blue parrot on orebats
+regis im in: ayz, spt, sbr, sdr, ebay, O🦇B,ybp, bug (not that active in most) claims: john laurens in almost all of them, shedletsky in spt, blue parrot on orebats
 
 hamilton tiktok:: workingonthree (follow me im so sigma) discord:: johnlaurns
 
