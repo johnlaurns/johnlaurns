@@ -2,10 +2,9 @@
 
 𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 
 
-HHAI oke... feel free to c + h at any time!!!! uhhh u can mostly find me either in forskane area (under bakery), docks or kpdh area
-ponies i use the most are john laurens, shedletsky, malbear. or tails !! 
+HHAI oke... feel free to c + h at any time!!!! uhhh im 90% of of the time in docks, but i might move around ://
 
-other ponies i use: wendy red velvet (dumb dumb) heejin loona (love & live) waffle oc, or any other dumb wip 
+im in a bunch of fandoms so liek ok hi
 
 regis im in: ayz, spt, sbr, sdr, ebay, O🦇B,ybp, bug (not that active in most) claims: john laurens in almost all of them, shedletsky in spt, blue parrot on orebats
 
